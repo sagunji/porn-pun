@@ -23,6 +23,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Captain Marvel | Captain Navel |
 | Charlie's Angels | Charlie's Anals |
 | Creed | Breed |
+| Dexter | Sexter |
 | Die Hard | Thy Hard |
 | Dragon Ball Z | Drag on BallZ |
 | Dawn of the Dead | Dong of the Dead |
@@ -39,6 +40,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Goodfellas | Woodfellas |
 | Harry Potter | Harry Nutter |
 | Harry Potter and the Deathly Hallows | Hairy Nutter and the Deathly Swallows |
+| House of Cards | House of Gnards |
 | How I Met Your Mother | How I Mate Your Mother <br/> How I Ate Your Mother |
 | Hollow Man | Swallow Man |
 | I Know What You Did Last Summer | I Know Whom You Did Last Summer |
@@ -53,6 +55,7 @@ A list of movies/series which could have really interesting porn parody names.
 | Mary Poppins | Cherry Poppins |
 | Mission Impossible | Missionary Impossible |
 | Moon | Moan |
+| One Punch Man | One Hunch Man |
 | Pulp Fiction | Pulp Friction |
 | Rick and Morty | Thick and Squirty |
 | Rock of Ages | Cock of Ages |
@@ -72,6 +75,7 @@ A list of movies/series which could have really interesting porn parody names.
 | The Lion King | The Loin King |
 | The Lives of Others | The Wives of Others |
 | The Longest Day | The Longest Gay |
+| The Newsroom | The Abuse Room <br /> The Dorkroom |
 | The Planet of The Apes | The Planet of The Rapes |
 | The Pursuit of Happyness | The Pursuit of Fappyness |
 | The Wolf of Wall Street | The Milf of Wall Street |
