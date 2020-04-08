@@ -16,7 +16,6 @@ A list of movies/series which could have really interesting porn parody names.
 | Avengers: End Game | Avengers: Bend Game |
 | A Beautiful Mind | A Beautiful Behind <br/> A Beautiful Grind |
 | A Million Ways to Die in the West | A Million Ways to Lie in the West |
-| A Beautiful Mind | A Beautiful Behind |
 | American Pie | American Bi <br/> American Creampie |
 | A Clockwork Orange | A Cockwork Orange |
 | Breaking Bad | Breaking Dad |
